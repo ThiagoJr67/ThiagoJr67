@@ -1,5 +1,5 @@
 # 💫 About Me:
-😎Estudante TI👾
+😎Estudante de TI👾
 
 
 ## 🌐 Socials:
